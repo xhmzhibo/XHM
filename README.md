@@ -9,8 +9,8 @@
 
 备用观众版下载地址如下
 
-### [mei9.app](https://mei9.app)
-### [xhm.live](https://xhm.live)
+### [xnm1.app](https://xnm1.app)
+### [xh2.live](https://xh2.live)
 
 
 ## 备用主播版下载地址如下
