@@ -2,8 +2,9 @@
 ## 点击以下链接进入下载页：
 
 主播版下载地址 
-### [1qqa.club](https://1qqa.club)
-### [4avf.club](https://4avf.club)
+### [gnm8.club](https://gnm8.club)
+### [hky2.club](https://hky2.club)
+### [qwk6.club](https://qwk6.club)
 
 （观众下载无法使用）
 
